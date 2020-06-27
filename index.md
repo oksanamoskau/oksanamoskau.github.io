@@ -13,3 +13,4 @@ Sein Hauptwerk - die Relativitätstheorie, machte ihn weltberühmt.
 
 > Die besten Dinge im Leben sind nicht die, die man für Geld bekommt.
 
+<img src="https://de.cleanpng.com/png-zv357f/preview.html"/>
